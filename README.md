@@ -1,1 +1,1 @@
-# LIKELION AI School
+# AI School - LIKE LION
