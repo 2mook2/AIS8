@@ -1,1 +1,1 @@
-# LIKELION AI School 8기 
+# LIKELION AI School
